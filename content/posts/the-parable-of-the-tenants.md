@@ -1,7 +1,7 @@
 ---
 title: "The Parable of the Tenants"
 date: 2019-12-05T20:32:29+02:00
-draft: true
+draft: false
 ---
 I’ve read this so many times, but never really understood what it meant.
 
