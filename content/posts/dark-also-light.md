@@ -1,6 +1,6 @@
 ---
 title: "The darkness will increase, but also the light."
-featured_image: "/images/seagull-dark-to-light.jpg"
+featured_image: "/images/dark-to-light.jpg"
 date: 2020-06-10T13:12:27+02:00
 draft: false
 ---

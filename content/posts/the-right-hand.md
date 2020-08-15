@@ -1,8 +1,10 @@
 ---
 title: "The Right Hand"
+featured_image: "/images/right-hand.jpg"
 date: 2020-05-31T13:45:24+02:00
 draft: false
 ---
+{{< figure src="/images/right-hand.jpg" >}}
 I feel more tingling of the Holy Spirit (presence) in my right hand than in my left hand.
 Later I heard somebody talk about Satan that came to people’s left side and brought demonic interference - I also know that Jesus is seated at the right side of the Father. I felt God wanted me to explore this.
 “and He raised us up and seated us together in the heavenly places in Christ Jesus,”
