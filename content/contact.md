@@ -8,6 +8,6 @@ menu: main
 
 ---
 
-Do you want to meet Jesus?
+Do you want to meet Jesus today?
 
 {{< form-contact action="https://formspree.io/xrgydjkb"  >}}
