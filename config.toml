@@ -2,7 +2,7 @@ baseURL = "https://www.janineforsyth.com/"
 languageCode = "en-us"
 title = "Janine Forsyth"
 theme = "ananke"
-#disqusShortname = "janineforsyth"
+disqusShortname = "janineforsyth"
 
 DefaultContentLanguage = "en"
 SectionPagesMenu = "main"
