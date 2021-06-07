@@ -1,7 +1,7 @@
 ---
 title: "Númeri 14"
 date: 2021-06-07T16:00:00+02:00
-draft: true
+draft: false
 ---
 Vanoggend het ek Núm 14 gelees en soveel goed het net uit die bladsye gespring. Dis so ‘n bekende stuk wat ek al baie gelees het, maar skielik het God net daardeur gepraat. Ons almal het iets wat ons moet doen wat vir ons regtig moeilik is. Die Israeliete se “moeilike ding” was om  
 1. van die verlede in Egipte te vergeet.
