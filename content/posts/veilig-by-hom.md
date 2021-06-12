@@ -1,7 +1,7 @@
 ---
 title: "Veilig by Hom"
 date: 2021-04-03T07:00:00+02:00
-draft: true
+draft: false
 ---
 Soms wanneer ek na die chaos in die wêreld kyk moet ek net my fokus skuif na die goedheid van God. God is altyd daar vir my, ongeag wat om my gebeur. Hierdie verse help my. 🙏🏻🤍✝️
 
