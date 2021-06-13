@@ -5,7 +5,7 @@ draft: false
 ---
 Ons moet versigtig wees wat ons sê. Ek het agtergekom dat as ek sê ‘n plant in my tuin lyk dooierig, sal hy doodgaan. Wanneer ek nou sien ‘n plant kort meer lewe, begin ek lewe oor dit spreek en dit werk regtig. Dis maar net in my tuin oor plante, dink net wat se groot uitwerking kan dit op mense hê. Begin lewe spreek oor siekte, irriterende mense en jou finansies ek kyk wat gebeur. Kom ons hou op praat oor covid-19, werksverlies, bloedvergieting, korrupsie en ons spreek lewe, finansiële oorvloed en voorspoed oor ons pragtige land. Kom ons nooi die Heilige Gees en God se heerlikheid in.
 
->*“Dood en lewe is in die mag van die tong; en elkeen wat dit graag gebruik, sal die vrug daarvan eet.”*  
+*“Dood en lewe is in die mag van die tong; en elkeen wat dit graag gebruik, sal die vrug daarvan eet.”*  
 **‭‭SPREUKE‬ ‭18:21‬ ‭AFR53‬‬**
 
 God het Sy stem gebruik om die aarde en alles daarop te skep. Jesus het lewe gespreek en mense genees met Sy stem. Dikwels het Hy net gesê: *“staan op en loop”* of *“jou geloof het jou gered”*.  
