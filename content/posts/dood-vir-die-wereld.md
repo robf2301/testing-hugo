@@ -1,7 +1,7 @@
 ---
 title: "Dood Vir Die Wereld"
 date: 2021-06-21T14:05:00+02:00
-draft: true
+draft: false
 ---
 Ek wonder altyd hoe kry die vervolgde kerk dit reg om Jesus te kies al word hul gemartel? Hoe kon Stéfanus sy oë op Jesus hou terwyl hy gestenig word (**Handelinge 7**)? Hoe kon Jesus wat sonder sonde was, gekruisig word? Ek glo die antwoord lê in die vlees wat dood is vir die wêreld. Wanneer jy leer om ten volle in die Gees te lewe, sien jy jouself sit in hemelse plekke saam met Jesus. Jy weet jy hoef jou nie te bekommer as iemand jou martel en jy sterf nie. Ek het gehoor van ‘n vrou wie se dogter vermoor is en sy kon die moordenaar, ‘n vriend van haar dogter, onmiddellik vergewe. Die vrou het die moordenaar in die tronk besoek en hom aangeneem as haar eie seun. Dit is slegs moontlik, wanneer jou wil gesterf het en God se Gees deur jou lewe.
 
