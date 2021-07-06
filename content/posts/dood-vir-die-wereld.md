@@ -1,5 +1,5 @@
 ---
-title: "Dood Vir Die Wereld"
+title: "Dood Vir Die Wêreld"
 date: 2021-06-21T14:05:00+02:00
 draft: false
 ---
