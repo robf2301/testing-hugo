@@ -32,3 +32,7 @@ enableRobotsTXT = true
   featured_image = "/images/sea-header.jpg"
   recent_posts_number = 9
   show_reading_time = true
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
