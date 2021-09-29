@@ -9,17 +9,18 @@ Ek het verlede nag 'n droom gehad waar ek op 'n plaas woon. Ons mag nie klein bo
 
 Klein boompies stel ook kinders of jongmense voor. As jy na Worldometer kyk sal jy sien dat daar daagliks 125 000 aborsies gedoen word. Hierdie jaar is reeds 31,7 miljoen babas wêreldwyd geaborteer en soos jy kyk sien jy hoe die nommers toeneem. God se Woord sê moenie moordpleeg nie, maar dit is op satan se agenda.
 > "Die dief kom net om te steel en te slag en te verwoes. Ek het gekom, dat hulle lewe en oorvloed kan hê."  
-> ‭‭JOHANNES‬ ‭10:10‬ ‭AFR53‬‬
+> �JOHANNES �10:10 �AFR53  
 
 Gif in 'n droom kan ook leuens voorstel in 'n droom. Ons kinders word leuens gevoer in baie skole i.p.v God se Woord. Baie jongmense glo nie dat die huwelik heilig is tussen 'n man en 'n vrou nie. Jy kan nou self kies wat jou geslag is.
 > "Oefen die seun volgens die eis van sy weg; dan sal hy, ook as hy oud word, daar nie van afwyk nie."  
-> ‭‭SPREUKE‬ ‭22:6‬ ‭AFR53‬‬
+> SPREUKE �22:6 �AFR53  
+
 > "Train up a child in the way he should go: And when he is old, he will not depart from it."  
-> ‭‭Proverbs‬ ‭22:6‬ ‭KJV‬‬
+> �Proverbs �22:6 �KJ
 
-Satan weet wanneer hy die kinders in sy nette het, het hy die volgende generasie in sy nette vasgevang. Leer jou kinders van Jesus, moenie dit aan die kerk of skool oorlaat nie. Ongelukkig gebruik satan ander mense om sy vuilwerk te doen. Jou kind is jou naaste sendingveld.
+Satan weet wanneer hy die kinders in sy nette het, het hy die volgende generasie in sy nette vasgevang. Leer jou kinders van Jesus, moenie dit aan die kerk of skool oorlaat nie. Ongelukkig gebruik satan ander mense om sy vuilwerk te doen. Jou kind is jou naaste sendingveld.  
 
-"Maar Jesus het hulle na Hom geroep en gesê: Laat die kindertjies na My toe kom en verhinder hulle nie, want aan sulkes behoort die koninkryk van God."  
-‭‭LUKAS‬ ‭18:16‬ ‭AFR53‬‬
+> "Maar Jesus het hulle na Hom geroep en gesê: Laat die kindertjies na My toe kom en verhinder hulle nie, want aan sulkes behoort die koninkryk van God."  
+> �LUKAS 18:16 �AFR53  
 
 Kinders is 'n geskenk van God en Jesus het gesê die kinders is belangrik vir Hom. Kom ons maak seker die volgende generasie ken God. Bid vir ons kinders dat hulle Jesus werklik sal ken.
