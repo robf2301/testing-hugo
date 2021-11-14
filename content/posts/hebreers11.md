@@ -1,0 +1,18 @@
+---
+title: "HEBREËRS 11"
+date: 2021-11-14T05:48:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>Die hoofstuk begin met ‘n definisie vir geloof.</p>
+  <p>“DIE geloof dan is 'n vaste vertroue op die dinge wat ons hoop, 'n bewys van die dinge wat ons nie sien nie.”<br>‭‭HEBREËRS‬ ‭11:1‬ ‭AFR53‬‬ &nbsp;</p>
+  <p>Ons hoop en vertroue moet op God wees sodat ons die dinge kan ontvang wat ons nie kan sien nie. Wanneer iemand siek is en sy vertroue op God plaas kan hy genesing ontvang. Jesus het ‘n &nbsp;menigte mense genees terwyl Hy op aarde was. Nou is dit ons verantwoordelikheid om vir die siekes te bid en genesing te verwag. My geloof word versterk wanneer ek ander se sukses verhale hoor.</p>
+  <p><br>“En sonder geloof is dit onmoontlik om God te behaag; want hy wat tot God gaan, moet glo dat Hy is en 'n beloner is van die wat Hom soek.”<br>‭‭HEBREËRS‬ ‭11:6‬ ‭AFR53‬‬ &nbsp;</p>
+  <p>Noag het ‘n waarskuwing van God ontvang dat Hy ‘n vloed gaan bring (Génesis 6-7). Noag moes ‘n ark bou om sy familie en ‘n groep diere te red. Daar was geen teken van reën nie en dit het nog nooit voorheen gereën nie. God het ‘n nuwe ding gedoen (Jes 43:18,19). Al wat Noag gehad het was God se Woord en tog het hy geglo en die ark gebou. Dikwels is God se Woord al wat ons het. Sy Woord belowe jy sal voorspoedig wees, genesing vind en dat jy ‘n wonderlike toekoms het. Geloof is om God se Woord te glo al is daar geen teken van oorwinning nie.</p>
+  <p>God het Abraham geroep na ‘n onbekende bestemming (Génesis 12-22). Hy het sy familie en besittings opgepak en gegaan sonder dat hy geweet &nbsp;het waarheen hy moes gaan. Sara moes God vertrou vir ‘n baba toe sy al baie oud was. Wanneer ons God vertrou word die onmoontlike moontlik. Jy is nooit te oud nie. God het steeds wonderlike planne vir jou. Dit is nie te laat nie. Abraham en Sara het nie die groot nageslag gesien nie. Dis was nie nodig vir hulle om dit te sien nie. Ons weet dat ‘n hele nasie gebore is uit Abraham en Sara. Dikwels laat God dinge anders uitwerk as wat jy dink. Hou aan glo en probeer, bly naby God en jy sal die goeie sien gebeur. Abraham was gehoorsaam aan God en selfs bereid om Isak te offer. Abraham het God geken en daarom geweet God kan Isak opwek nadat hy gesterf het. Ken jy God?</p>
+  <p>Moses se ouers het God vertrou om na hul baba om te sien (Exodus 1- 14). Moses wou nie bly in die paleis van die Farao nie. Hy het die rykdom, sonde en gemak opgegee om saam met sy mense swaar te kry. Moses se geloof in God het die Israeliete op droë grond laat stap deur die Rooi See terwyl al die Egiptenaars verdrink het. Josua se gehoorsaamheid en geloof in God het die mure van Jérigo laat val. Gehoorsaamheid aan God en geloof is 2 sleutels wat jou toegang gee tot jou oorwinning. Wanneer jy voel of jy stagneer kyk terug na die laaste ding wat God vir jou gesê het. Was jy dalk ongehoorsaam, is daar dalk sonde waarvoor jy vergifnis moet vra? Sê vir God wanneer jou geloof min is. Hy wil jou help. Dikwels moet ek myself herinner aan God se goedheid en my oë en gedagtes wegdwing van ‘n probleem en terugplaas op God. Jesus het reeds betaal vir al die probleme van hierdie wêreld. Dis klaar. Die Heilige Gees wil oplossings in jou hart fluister. Die engele staan reg om God se wil in jou lewe te laat gebeur.</p>
+  <p>“Sal God dan nie reg doen aan sy uitverkorenes wat dag en nag tot Hom roep nie, al is Hy ook lankmoedig in hulle geval? Ek sê vir julle dat Hy gou aan hulle reg sal doen; maar as die Seun van die mens kom, sal Hy wel die geloof op die aarde vind?”<br>‭‭LUKAS‬ ‭18:7-8‬ ‭AFR53‬‬<br>&nbsp;</p>
+ </body>
+</html>
