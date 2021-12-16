@@ -1,0 +1,23 @@
+---
+title: "PSALMS 91"
+date: 2021-12-16T05:48:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>Die skrywer van Psalms 91 is nie bekend nie. Daar is ‘n moontlikheid dat dit dalk Moses was. Dis baie duidelik dat die skrywer ‘n baie intieme verhouding met God gehad het. Die persoon het God geken en geweet dat God goed is. God belowe in Psalms 91 dat wanneer ons naby Hom bly &nbsp;sal ons veilig wees in alle omstandighede. Jy moet so naby aan God wees dat jy in Sy skaduwee kan skuil. Hy bedek ons met Sy vlerke dat geen gevaar ons kan aanraak nie. Die Nuwe Testament leer vir ons dat ons deel van Jesus moet bly, want sonder Jesus kan ons niks doen nie.</p>
+  <blockquote>
+   <p>“Ek is die wynstok, julle die lote. Wie in My bly, en Ek in hom, hy dra veel vrug; want sonder My kan julle niks doen nie.”<br>‭‭JOHANNES‬ ‭15:5‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <p>Jesus nooi ons om een met Hom en die Vader te word.</p>
+  <blockquote>
+   <p>“In dié dag sal julle weet dat Ek in my Vader is, en julle in My, en Ek in julle. Wie my gebooie het en dié bewaar, dit is hy wat My liefhet; en wie My liefhet, hóm sal my Vader liefhê, en Ek sal hom liefhê en My aan hom openbaar. Jesus antwoord en sê vir hom: As iemand My liefhet, sal hy my woord bewaar, en my Vader sal hom liefhê, en Ons sal na hom toe kom en by hom woning maak.”<br>‭‭JOHANNES‬ ‭14:20-21, 23‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <p>Johannes 14 gee vir ons 2 voorwaardes:<br>1. As jy God liefhet en<br>2. As jy God se Woord bewaar<br>Dan sal God by jou kom woon.</p>
+  <p>As kind van God het jy bo-natuurlike beskerming en guns.<br>• Geen siekte, onheil of plaag kan jou aanraak nie.<br>• Jy sal niks vrees nie.<br>• Mense om jou sal geraak word deur omstandighede, terwyl jy onaangeraak bly.<br>• God stuur Sy engele om jou te beskerm.&nbsp;<br>• Jy het outoriteit oor satan.<br>• Jou gebede word verhoor.<br>• Jy sal geseënd wees met ‘n lang lewe.<br>• Jy sal God se heerlikheid sien.</p>
+  <p>Wat kan jy doen as jy nog nie al die seëninge ervaar nie?&nbsp;<br>Begin deur Númeri 23:19, Job 22:28, 2 Korinthiërs 1:20, Romeine 4:17, Spreuke 18:21, Génesis 18:14 en Deuteronómium 28 te lees. Hierdie verse wys vir jou dat niks te moeilik vir God is nie, maar ook dat jy ook saam met God moet werk om jou omstandighede te verander.&nbsp;<br>Vir siekte bid en herhaal (“decree”) ek Skrif. Ek sal sê: “Jesus U het reeds vir al my siekte betaal, deur U wonde is ek genees van …….” (Jesaja 53:5, Psalms 103:3). Dis belangrik om nie negatief te praat en met almal jou probleme te deel nie. Jy is gemaak na die beeld van die Vader en die Vader het met Sy stem die aarde en alles daarop geskep. Jesus het met Sy stem mense gesond verklaar. Jou stem kan dieselfde doen. Kry ‘n paar mense wat lewe sal spreek, om saam met jou oor probleme te bid. Verder kan jy jouself skuldvry verklaar. Staan op Deuteronómium 28 wat bevestig dat jy genoeg sal hê om mense om jou te seën. God wil na al jou behoeftes omsien (Filippense 4:19). Vrees verdwyn wanneer jy Skrif deel van jou lewe maak (Romeine 10:17). Vrees kom weens ‘n gebrek aan vertroue in Jesus. Vrees kom nie van God nie (2 Timótheüs 1:7). Luister na ander mense se getuienis en dit sal jou geloof opbou. Romeine 8:28 en Jeremia 29:11 oortuig my dat God goeie planne vir my het en Hy kan alles laat uitwerk. Wanneer daar vrede in jou hart is kan jy ‘n situasie aan God oorhandig en weet Hy sal die beste uitkoms bewerkstellig. Die wêreld voer jou met bekommernis, terwyl Jesus jou met vrede vul (Johannes 14:27, Filippense 4:6,7).</p>
+  <p>Jesus het vir ons gewys hoe om Psalms 91 uit te leef. Elke keer wanneer Jesus Homself afgesonder het op die berg het Hy by die skuilplek van die Allerhoogste gaan sit. Jesus het anders gelyk en klink as die skrifgeleerdes. Ons moet anders klink as die mense wat dooie godsdiens het. Ons het ook krag en outoriteit oor siektes en demone. Engele het Jesus se koms aangekondig en was aktief betrokke in Sy lewe. Die engele het Jesus versterk en Jesus kon die engele inroep wanneer Hy hulp nodig gehad het (Matthéüs 1:20; 2:13,19; 4:11; 26:53). Jy kan dieselfde doen (Psalms 103:20, Hebreërs 1:14).</p>
+  <p>Ek wil jou aanmoedig om al hierdie verse deel van jou lewe te maak. Dit het my lewe verander. Voorheen was ek altyd bekommerd oor iets. Wanneer jy Psalms 91 jou leefstyl maak begin jy wonder waarom jy nie bekommerd is nie. Jy sal dan weet dat jy veilig sit en rus by die voete van Jesus.</p>
+ </body>
+</html>
