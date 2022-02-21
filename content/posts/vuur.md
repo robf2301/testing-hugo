@@ -1,0 +1,35 @@
+---
+title: "VUUR"
+date: 2022-02-21T04:42:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <blockquote>
+   <p>“Aangaande die gestalte van die wesens: hulle voorkoms was soos gloeiende vuurkole, soos die voorkoms van fakkels; die vuur het heen en weer beweeg tussen die wesens, en die vuur het 'n helder glans gehad, en uit die vuur het blitse uitgeslaan.”<br>‭‭ESÉGIËL‬ ‭1:13‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <p>Ek het altyd gewonder waarom God wou hê ons moet weet dat daar 4 wesens met 4 koppe wat op wiele beweeg, in die troonkamer is (Eségiël 1). Op ‘n dag het ek besef hulle beweeg 100% saam met die Heilige Gees. Hulle wys vir ons dat ons ook saam met God se Gees moet beweeg. Onlangs het ek eers besef hulle het vuurvlamme om hulle, want dit is wat gebeur wanneer jy in die teenwoordigheid van God is. Die wiele was vol oë en die 7 oë is die 7 geeste van God (Jesaja 11, Sagaria 3-4, Openbaring 5). &nbsp;Die volheid van God se Gees bestaan uit al 7 dele. Die wesens het saam met God se Gees beweeg. Hulle was vol vuur, want dit is wat gebeur wanneer jy in God se teenwoordigheid is. Vuur brand weg alle onsuiwerhede en dooie hout, maar dit kan ook ander mense aktiveer of aansteek om aan die brand te raak vir God.</p>
+  <p>Die heerlikheid van God was gesien as ‘n reënboog om God. Soos meer van God se Gees op aarde uitgestort word en ons meer van Sy heerlikheid sien word meer fisiese reënboë ook sigbaar. Elkeen van God se geeste verteenwoordig ‘n kleur van die reënboog. Terselfdetyd bly satan ook nie agter met sy gesteelde embleem van die reënboog nie. Satan is ‘n nabootser en sy motief is altyd doodmaak, steel en vernietig. God gee lewe in oorvloed.</p>
+  <p>Toe God met Moses gepraat het vanuit die brandende bos het die bos nooit uitgebrand nie (Exodus 3). Met die Israeliete se trek uit Egipte het God as ‘n vuurkolom in die nag saam met hul getrek (Exodus 13:21). Later moes Moses seker maak dat Aäron die vuur en lampe aan die brand hou. Die vuur en ligte was ‘n simbool van God se teenwoordigheid.</p>
+  <blockquote>
+   <p>“Vuur moet gedurigdeur op die altaar aan die brand gehou word; dit mag nie doodgaan nie.”<br>‭‭LEVÍTIKUS‬ ‭6:13‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <blockquote>
+   <p>“Gee bevel aan die kinders van Israel dat hulle vir jou suiwer, uitgestampte olyfolie vir die kandelaar moet bring, om gedurigdeur 'n brandende lamp te hê. Aäron moet dit buitekant die voorhangsel van die Getuienis, in die tent van samekoms, regmaak om te brand van die aand tot die môre voor die aangesig van die Here, gedurigdeur. Dit is 'n ewige insetting vir julle geslagte. Hy moet op die rein kandelaar die lampe regmaak om te brand voor die aangesig van die Here, gedurigdeur.”<br>‭‭LEVÍTIKUS‬ ‭24:2-4‬ ‭AFR53‬‬ (Exodus 27:20-21)</p>
+  </blockquote>
+  <p>Met die opening van die eerste tempel het Salomo gebid en daarna het vuur uit die hemel gekom en die offers verbrand. Die heerlikheid van die Here het die hele tempel gevul en die Israeliete het God aanbid (2 Kronieke 7). Ongeveer 140 jaar voor Christus se geboorte het die Jode in opstand gekom teen hul vyande en gewen. Hulle het die tweede tempel teruggeneem, skoon gemaak en weer opgedra aan God. Ongelukkig het hulle nie genoeg olyfolie gehad om die lampe (menorah) te laat brand nie. Die lampe het bo-natuurlik gebrand vir 8 dae lank sonder dat die olyfolie opgeraak het. Dit was die begin van die Fees van Ligte (Hanukkah) wat vandag nog gevier word. Jare later het selfs Jesus het die fees bygewoon (Johannes 10:22).</p>
+  <p>Elía het in die tyd van Agab en Isébel ‘n altaar gebou om te wys dat Sy God die ware God is. Die vals Baäl profete se offers wou nie brand nie. God het vuur gestuur om Elía se offer te verbrand (1 Konings 18). God se teenwoordigheid was weer sigbaar as vuur.</p>
+  <blockquote>
+   <p>“Die sondaars in Sion bewe, siddering het die roekelose aangegryp. Hulle sê: Wie van ons kan woon by 'n verterende vuur, wie van ons kan woon by 'n ewige gloed? Hy wat in geregtigheid wandel en spreek wat reg is, wat gewin deur afpersinge versmaad, wat sy hande uitskud om geen omkoopgeskenk aan te gryp nie, wat sy oor toestop om van geen bloedskuld te hoor nie, en sy oë sluit om wat sleg is, nie te sien nie — hy sal op hoogtes woon, rotsvestings is sy burg; sy brood word hom gegee, sy water is gewis. Jou oë sal die Koning in sy skoonheid aanskou, dit sal 'n wyd uitgestrekte land sien.”<br>‭‭JESAJA‬ ‭33:14-17‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <p>Die profeet Maleági het profeteer dat Jesus sal kom om ons skoon te maak soos silwer en goud deur vuur skoon gemaak word (Maleági 3:1-3).&nbsp;<br>Die Émmaüsgangers se “harte was brandend” toe hulle met Jesus gesels het (Lukas 24:32). Dit was heel gepas dat vuurvlamme sigbaar was toe God se Gees op die aarde uitgestort is.</p>
+  <blockquote>
+   <p>“EN toe die dag van die pinksterfees aangebreek het, was hulle almal eendragtig bymekaar. En daar kom skielik uit die hemel 'n geluid soos van 'n geweldige rukwind, en dit het die hele huis gevul waar hulle gesit het. Toe is deur hulle tonge gesien soos van vuur, wat hulleself verdeel en op elkeen van hulle gaan sit. En hulle is almal vervul met die Heilige Gees en het begin spreek in ander tale, soos die Gees aan hulle gegee het om uit te spreek. En daar het in Jerusalem Jode gewoon, godsdienstige manne, uit elke nasie wat onder die hemel is. En toe hierdie geluid kom, het die menigte saamgestroom en was in die war, want elkeen het gehoor hoe hulle in sy eie taal spreek;”<br>‭‭HANDELINGE‬ ‭2:1-6‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <p>Die vyand gebruik vuur om mense en hul eiendom uit te wis. Ons liefdevolle Vader gebruik vuur om ons nader aan Hom te bring. Selfs die Fynbos hier in die Kaap benodig vuur om te oorleef. Sekere Proteas se sade ontkiem slegs na ‘n brand en dit neem dikwels 3 tot 4 jaar voor ‘n nuwe plant blomme produseer. Ons benodig God se vuur om ons soos duursame goud te suiwer sodat ons sondeloos kan wees en koninkryks- blomme en vrugte kan dra. Elkeen van ons moet God se vuur in ons harte hê sodat ons Sy wil kan laat geskied (1 Petrus 1:7). God is altyd dieselfde. In die Ou Testament was Hy ‘n “verterende vuur” wat alles verbrand het wat in die Israeliete se pad gestaan het (Deuteronómium 9:3). Vandag is Hy steeds ‘n “verterende vuur”.</p>
+  <blockquote>
+   <p>“Pas op dat julle Hom wat spreek, nie afwys nie; want as húlle nie ontvlug het nie wat Hom afgewys het toe Hy op aarde 'n goddelike waarskuwing gegee het, veel minder óns wat ons van Hom afkeer nou dat Hy uit die hemele spreek. Toe het sy stem die aarde geskud; maar nou het Hy belowe en gesê: Nog een maal laat Ek nie alleen die aarde nie, maar ook die hemel bewe. En hierdie woord: nog een maal, wys duidelik op die verandering van die wankelbare dinge as geskape dinge, sodat die onwankelbare kan bly. Daarom, omdat ons 'n onwankelbare koninkryk ontvang, laat ons dankbaar wees, en so God welbehaaglik dien met eerbied en vrees. Want onse God is 'n verterende vuur.”<br>‭‭HEBREËRS‬ ‭12:25-29‬ ‭AFR53‬‬<br>&nbsp;</p>
+  </blockquote>
+ </body>
+</html>
