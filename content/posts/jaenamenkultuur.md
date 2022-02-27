@@ -1,0 +1,28 @@
+---
+title: "Ja en Amen kultuur"
+date: 2022-02-27T05:55:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>Jesus het die kultuur en atmosfeer om Hom verander. Jesus het mense genees op die Sabbatdag. Jesus het die dissipels gelos toe hul koring pluk op die Sabbatdag omdat hulle honger was. Hy het tafels omgegooi in die tempel. Jesus was ‘n rebel in die oë van die wêreld, terwyl Hy slegs gedoen het wat Sy Vader sê. Jesus het die godsdienstige mense ontstel terwyl die wat Hom wou volg lewe gevind het. Wat sou Jesus vandag doen? Vandag sien ons dikwels hoe mense aanpas by die wêreld se kultuur. As jou landswet sê iets is reg, moet jy jouself afvra is dit werklik reg? Jy kan ook nie meer sê die kerk sê dit is reg daarom aanvaar jy dit so nie.</p>
+  <p>Nebukadnésar het Sadrag, Mesag en Abednégo in ‘n vuurwarm oond laat gooi omdat hulle geweier het om ‘n goue kalf te aanbid (Daniël 3). Daniël het in die leekuil beland omdat hy geweier het om Koning Darius te aanbid (Daniël 6). Petrus, Paulus, Stéfanus en Johannes die doper het opgestaan vir dit wat reg is. Die vervolgde kerk word mishandel vir hulle geloof. Nie een van die Bybelse helde het aangepas by die wêreld se kultuur nie. Dit is tyd dat ons opstaan vir dit wat reg is.</p>
+  <p>In kommunistiese lande en sosialistiese lande word die kerk beheer deur die staat. Die kerke word nie toegemaak nie. Nee, die staatsbeheerde kerke bedryf ‘n dooie godsdiens met ‘n vals beeld van Jesus. Almal wat werklik Jesus wil volg word moet dan deel word van die geheime ondergrondse kerk. China is nou besig om die Bybel te herskryf om by die staat se agenda aan te pas. Almal kan raaksien dat China die ware Jesus uit die kerk haal en dooie godsdiens navolg. Waarom sukkel mense om dit raak te sien wanneer dit reg voor ons gebeur?</p>
+  <p>Die bruid is ‘n tempel van God. Ons kan nie kompromieë aangaan nie. Paulus het die Galásiërs aangespreek omdat hulle die “evangelie van Christus verdraai” het (Galásiërs 1:6-12). Paulus het ook gesê dat ons nie mense gelukkig moet hou nie. Jesus en die apostels het vir almal baie duidelik laat verstaan wat’s reg en wat’s verkeerd. Dit is nie liefde as jy mense ondersteun in ‘n leefwyse wat hulle in die ewige verderf gaan laat beland nie. Dikwels wanneer ek mense hoor praat oor Jesus herken ek glad nie die Jesus waarvan ek in my Bybel lees nie. Hulle vertel dat Jesus wil jou net gelukkig hê. Hy is so lief vir jou dat jy kan doen net wat jy wil en Hy sal jou vergewe. As ek noem dat die Bybel sê dat iets verkeerd is vind ek dat hulle nie juis God se Woord ken nie. Om ‘n volwasse Christen te wees beteken jy ken God se Woord en &nbsp;jy het onderskeidingsvermoë deur die Heilige Gees ontvang. Jy wantrou nie alles en almal nie, maar jy glo ook nie al die bog wat aan jou opgedis word nie. Dis asof ‘n alarm afgaan wanneer iets nie reg is nie. Daar is ongelukkig mense wat jou wil bedrieg. As Christene moet ons die waarheid kan raaksien.</p>
+  <blockquote>
+   <p>“totdat ons almal kom tot die eenheid van die geloof en van die kennis van die Seun van God, tot 'n volwasse man, tot die mate van die volle grootte van Christus; sodat ons nie meer kinders sou wees nie wat soos golwe geslinger en heen en weer gedryf word deur elke wind van lering, deur die bedrieëry van die mense, deur sluheid om listiglik tot dwaling te bring; maar, terwyl ons in liefde die waarheid betrag, in alles sou opgroei in Hom wat die Hoof is, naamlik Christus,”<br>‭‭EFÉSIËRS‬ ‭4:13-15‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <blockquote>
+   <p>“Julle het die duiwel as vader, en die begeertes van julle vader wil julle doen. Hy was 'n mensemoordenaar van die begin af en staan nie in die waarheid nie, omdat daar in hom geen waarheid is nie. Wanneer hy leuentaal praat, praat hy uit sy eie, omdat hy 'n leuenaar is en die vader daarvan. Maar omdat Ek die waarheid spreek, glo julle My nie. Wie van julle oortuig My van sonde? En as Ek die waarheid spreek, waarom glo julle My nie? Die wat uit God is, luister na die woorde van God. Daarom luister julle nie, omdat julle nie uit God is nie.”<br>‭‭JOHANNES‬ ‭8:44-47‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <blockquote>
+   <p>“Maar wee julle, skrifgeleerdes en Fariseërs, geveinsdes, want julle sluit die koninkryk van die hemele toe voor die mense; want julle gaan self nie in nie, en die wat sou ingaan, laat julle nie toe om in te gaan nie.”<br>‭‭MATTHÉÜS‬ ‭23:13‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <p>Jesus kon raaksien wanneer die Fariseërs en skrifgeleerdes Hom wou mislei of uitvang. Jy moet ook kan sien wanneer mense jou wil mislei.<br>Die skrifgeleerders en Fariseërs het hulle met dooie rituele besig gehou (Markus 7:6-8). Hulle het die Skrif geken, maar nooit ‘n verhouding gebou met hulle Skepper nie. Wanneer jy ‘n verhouding het met Jesus sal die Heilige Gees jou bewus maak van dinge wat gaan gebeur (Johannes 14:26-27). Jesus het Sy volgelinge gewaarsku dat daar vals profete en selfs ‘n vals Jesus sal kom. Hulle sal ook wonderwerke doen en mense sal mislei word (Markus 13:5-6, Matthéüs 24:23-24).&nbsp;<br>‬<br>Maak seker dat jy werklik Jesus ken en Sy stem hoor. Bestudeer die Woord dan sal jy sien dat ons eerstens aan God gehoorsaam is en dan aan ons landswette. Jesus het nie aangepas by die kultuur van die tyd nie. Moenie alles glo wat jy hoor nie. Vra vir die Heilige Gees wat die waarheid is.</p>
+  <blockquote>
+   <p>“Maar wanneer Hy gekom het, die Gees van die waarheid, sal Hy julle in die hele waarheid lei; want Hy sal nie uit Homself spreek nie, maar alles wat Hy hoor, sal Hy spreek en die toekomstige dinge aan julle verkondig.”<br>‭‭JOHANNES‬ ‭16:13‬ ‭AFR53‬‬</p>
+  </blockquote>
+  <p>&nbsp;</p>
+ </body>
+</html>
