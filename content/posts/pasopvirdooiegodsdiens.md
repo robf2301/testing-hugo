@@ -1,6 +1,6 @@
 ---
 title: "PASOP VIR DOOIE GODSDIENS"
-date: 2022-03-21T05:47:00+02:00
+date: 2022-03-21T05:56:00+02:00
 draft: false
 ---
 <html>
@@ -15,6 +15,6 @@ draft: false
   <blockquote>
    <p>“Hulle sê toe vir Hom: Waar is u Vader? Jesus antwoord: Julle ken My nie en ook nie my Vader nie; as julle My geken het, sou julle ook my Vader geken het.&nbsp;<br>En julle ken Hom nie, maar Ek ken Hom; en as Ek sê dat Ek Hom nie ken nie, sal Ek soos julle 'n leuenaar wees. Maar Ek ken Hom en bewaar sy woord.”<br>‭‭JOHANNES‬ ‭8:19, 55‬ ‭AFR53‬‬</p>
   </blockquote>
-  <p><br>*** The Divinity Code to &nbsp;Understanding your Dreams and Visions, Adam&nbsp;<br>Thompson and Adrian Beale.</p>
+  <p><br>*** The Divinity Code to &nbsp;Understanding your Dreams and Visions, Adam Thompson and Adrian Beale.</p>
  </body>
 </html>
