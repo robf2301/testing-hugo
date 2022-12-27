@@ -1,0 +1,11 @@
+---
+title: "MAAK JOU STORM STIL"
+date: 2022-12-06T06:33:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p><span style="background-color:rgb(255,255,255);color:rgb(0,0,0);font-family:Arial, Helvetica, sans-serif;">Lees <strong>Matthéüs 8:23-27</strong>, <strong>Markus 4:35-41</strong> en <strong>Lukas 8:22-25</strong>.</span><br><br><span style="background-color:rgb(255,255,255);color:rgb(0,0,0);font-family:Arial, Helvetica, sans-serif;">Jesus het op boot geklim en die dissipels het Hom gevolg. Hulle was oppad na die oorkant van die see. Jesus was aan die slaap toe ‘n storm uitbreek. Die water het die boot begin vul. Die dissipels was bekommerd en het Jesus wakker gemaak en Hom beskuldig dat Hy hulle wil laat vergaan.</span><br><span style="background-color:rgb(255,255,255);color:rgb(0,0,0);font-family:Arial, Helvetica, sans-serif;">Jesus het die wind en die see bestraf en die storm het stil geword. Jesus het die dissipels kleingelowiges genoem omdat hulle bang was.</span><br><br><span style="background-color:rgb(255,255,255);color:rgb(0,0,0);font-family:Arial, Helvetica, sans-serif;">Soms volg ons Jesus en dinge loop steeds verkeerd. Veral wanneer jy oppad is na jou “anderkant van die see”. Die vyand wil nie hê dat jy aan die anderkant moet uitkom nie. Wanneer ‘n storm kom moet ons nie Jesus beskuldig nie. Ons moenie kleingelowig wees en die ergste verwag nie.</span><br><span style="background-color:rgb(255,255,255);color:rgb(0,0,0);font-family:Arial, Helvetica, sans-serif;">Die dissipels moes hulleself afvra&nbsp; - ‘Wie is hierdie Man (Jesus)?’</span><br><span style="background-color:rgb(255,255,255);color:rgb(0,0,0);font-family:Arial, Helvetica, sans-serif;">Wanneer jy Jesus leer ken kan jy jou identiteit en outoriteit ontdek.</span><br><span style="background-color:rgb(255,255,255);color:rgb(0,0,0);font-family:Arial, Helvetica, sans-serif;">Dan neem jy aksie en spreek jyself die dinge aan wat teen jou is, in die Naam van Jesus. Daar is ‘n tyd om stil te sit, te wag en te bid, maar hierdie is&nbsp; ‘n geval waar jyself, in die Naam van Jesus, moet optree. Miskien lyk dit vir jou dat Jesus slaap, want Hy tree nie op nie, want jy moet. Bestraf jou probleme en maak die storm in jou lewe stil.</span></p>
+ </body>
+</html>
