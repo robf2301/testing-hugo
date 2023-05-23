@@ -44,7 +44,7 @@ draft: false
   <blockquote>
    <p>“En 'n tempel het ek nie daarin gesien nie, want die Here God, die Almagtige, is sy tempel, en die Lam. En die stad het die son of die maan nie nodig om in hom te skyn nie, want die heerlikheid van God het hom verlig, en die Lam is sy lamp. En die nasies van die wat gered word, sal in die lig daarvan wandel, en die konings van die aarde bring hulle heerlikheid en eer daarin.”<br>‭‭OPENBARING‬ ‭21‬:‭22‬-‭24‬ ‭AFR53‬‬</p>
   </blockquote>
-  <p>Die derde geestelike tempel:</p>
+  <p><u>Die derde geestelike tempel:</u></p>
   <p>Sagaría het profeteer dat Jesus die tempel sal bou:</p>
   <blockquote>
    <p>“en sê vir hom dit: So spreek die Here van die leërskare: Kyk, daar kom 'n Man wie se Naam is Spruit, en Hy sal uit sy plek uitspruit, en Hy sal die tempel van die Here bou. Ja, Hý sal die tempel van die Here bou, en Hý sal majesteit verkry en sit en heers op sy troon; ook sal Hy 'n priester wees op sy troon, en die raad van vrede sal tussen hulle twee bestaan.”<br>‭‭SAGARÍA‬ ‭6‬:‭12‬-‭13‬ AFR53</p>
