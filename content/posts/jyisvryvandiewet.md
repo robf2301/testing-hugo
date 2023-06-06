@@ -1,14 +1,11 @@
 ---
 title: "Jy is vry van die wet"
-date: 2023-06-06T05:04:00+02:00
+date: 2023-06-06T05:11:00+02:00
 draft: false
 ---
 <html>
  <head></head>
  <body>
-  <figure class="image">
-   <img src="/images/jyisvryvandiewet00.jpg" alt="" title="">
-  </figure>
   <p>Galásiërs 3 -5</p>
   <p>“Meester, wat is die groot gebod in die wet? En Jesus antwoord hom: Jy moet die Here jou God liefhê met jou hele hart en met jou hele siel en met jou hele verstand. Dit is die eerste en groot gebod. En die tweede wat hiermee gelykstaan: Jy moet jou naaste liefhê soos jouself. Aan hierdie twee gebooie hang die hele wet en die profete.”<br>‭‭MATTHÉÜS‬ ‭22‬:‭36‬-‭40‬ ‭AFR53‬‬</p>
   <p>Jesus het dit so eenvoudig gemaak. As jy God liefhet sal jy Sy skepping liefhet en ook gehoorsaam wees aan Hom. Ek sien gereeld hoe mense weer wette en reëls en regulasies wil maak. As jy na Paulus se briewe en instruksies kyk dan sien jy dat hy spesifieke probleme in spesifieke areas aangespreek het. Dit is baie handig as jy ‘n antwoord soek vir ‘n probleem. Baie mense sit egter al die instruksies bymekaar en preek dit asof dit ‘n stel nuwe wette is. Paulus waarsku die Galásiërs hieroor in hoofstuk 3.</p>
