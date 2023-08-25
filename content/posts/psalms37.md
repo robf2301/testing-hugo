@@ -1,0 +1,25 @@
+---
+title: " PSALMS 37"
+date: 2023-08-25T05:35:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>Opskrif van die Psalm: “Geluk van die goddelose is maar skyn.”</p>
+  <p>“'n PSALM van Dawid. Alef. Wees nie toornig op die kwaaddoeners nie, beny hulle nie wat onreg doen nie; want soos gras sal hulle gou verwelk, en soos groen grasspruitjies sal hulle verdroog.”<br>‭‭PSALMS‬ ‭37‬:‭1‬-‭2‬ ‭AFR53‬‬</p>
+  <p>Hierdie Psalm herinner ons daaraan dat God sien hoe die goddelose hulle geld verdien. Hy sê ons moenie ontsteld raak oor hulle nie, want die goddelose sal verdwyn. In ons land sien ons daagliks hoe die goddelose floreer en wegkom met hul gruwelike sondes. Ons het verlede naweek “Sound of Freedom” gekyk en dit ontstel mens geweldig om te sien hoe mense handeldryf met kinders. Mensehandel is die vinnigste groeiende misdaad in die wêreld. Die Bybel sê ons moenie kwaad of ontsteld raak nie. Wat moet ons dan doen?</p>
+  <p>“en verlustig jou in die Here; dan sal Hy jou gee die begeertes van jou hart. Gimel. Laat jou weg aan die Here oor en vertrou op Hom, en Hý sal dit uitvoer; en Hy sal jou geregtigheid laat voortkom soos die lig en jou reg soos die middag. Dalet. Swyg voor die Here en verwag Hom; wees nie toornig op hom wat voorspoedig in sy weg is nie, op die man wat listige planne uitvoer nie. He. Laat staan die toorn en verlaat die grimmigheid; wees nie toornig nie: dit is net om kwaad te stig. Want die kwaaddoeners sal uitgeroei word; maar die wat die Here verwag, hulle sal die aarde besit. Wau. En nog 'n klein rukkie en die goddelose sal daar nie wees nie; ja, jy sal ag gee op sy plek, maar hy sal daar nie wees nie. Die ootmoediges daarenteen sal die aarde besit en hulle verlustig oor groot vrede. Sajin. Die goddelose bedink listige planne teen die regverdige en kners met sy tande teen hom. Die Here lag oor hom, want Hy sien dat sy dag kom.”<br>‭‭PSALMS‬ ‭37‬:‭4‬-‭13‬ ‭AFR53‬‬</p>
+  <p>Psalm 37:7 AMPC<br>Be still and rest in the Lord; wait for Him and patiently lean yourself upon Him; fret not yourself because of him who prospers in his way, because of the man who brings wicked devices to pass.</p>
+  <p>Psalm 37:7 TPT<br>Quiet your heart in his presence and wait patiently for Yahweh. And don’t think for a moment that the wicked, in their prosperity, are better off than you.<br>TPT footnote verse 7: “The root word of the word for “wait” can mean “to whirl” or “to be in labor [give birth].” What an unusual concept for waiting on God. We may feel like we’re being whirled around by our circumstances, but in the end, our season of waiting gives birth to greater things.”</p>
+  <p>Moenie fokus op die goddelose se sonde nie, maar fokus op Jesus. Bou verhouding met Jesus, wag en luister na die stem van die Heilige Gees en jy sal rus vind in Hom. In hierdie rustigheid sal ons nader aan Jesus beweeg en ons lewensdoel ontdek. Elkeen van ons is geroep om ‘n verandering te maak. Tog kan jy nie jou oë of ore toemaak vir die euwel van hierdie wêreld nie. Vra vir Jesus hoe jy kan help om God se koninkryk aarde toe te bring.</p>
+  <p>“Tet. 'n Klein bietjie is vir die regverdige beter as die rykdom van baie goddelose; Hulle sal nie beskaamd staan in die slegte tyd nie, en in dae van hongersnood sal hulle versadig word. Lamed. Die goddelose leen en gee nie terug nie, maar die regverdige ontferm hom en gee; want die wat deur Hom geseën word, sal die aarde besit; maar die wat deur Hom vervloek word, sal uitgeroei word. Noen. Ek was jonk, ook het ek oud geword, maar nooit het ek die regverdige verlate gesien, of dat sy nageslag brood soek nie.&nbsp;<br>PSALMS‬ ‭37‬:‭16‬, ‭19‬, ‭21‬-‭22‬, ‭25‬ AFR 53</p>
+  <p>Wêreldse sukses is uiterlik en tydelik. Om Jesus te ken is ware sukses. Dit is beter om min te hê en dit op ‘n eerlike wyse te bekom as om ryk te word op ‘n oneerlike manier. Jesus kyk na jou hart en sal jou seën as jou hart reg is. Ek leef volgens Matthéüs 6:33 - soek Hom en jy sal al die ander dinge kry.</p>
+  <p>Sade. Die goddelose loer op die regverdige en soek om hom dood te maak. Kof. Wag op die Here en hou sy weg, en Hy sal jou verhoog, om die aarde te besit; jy sal met welgevalle neersien op die uitroeiing van die goddelose mense. Sjin. Let op die vrome en kyk na die opregte, want daar is 'n toekoms vir die man van vrede. Maar die oortreders word tesame verdelg; die toekoms van die goddelose word afgesny. Tau. Maar die hulp van die regverdiges is van die Here, hulle toevlug in tyd van benoudheid. En die Here help hulle en red hulle; Hy red hulle van die goddelose mense en verlos hulle, want hulle skuil by Hom.”<br>‭PSALMS 37: 32‬, ‭34‬, ‭37‬-‭40‬ ‭AFR53‬‬</p>
+  <p>Weer herinner Dawid ons om te wag op Jesus. Ons kan nie self wraak neem op die vyand nie, maar ons kan ons lewensdoel uitleef. Wanneer dinge in die wêreld moeilik raak skuil by Jesus - Psalms 91.</p>
+  <p>&nbsp;</p>
+  <p>&nbsp;</p>
+  <p>&nbsp;</p>
+  <p>&nbsp;</p>
+ </body>
+</html>
