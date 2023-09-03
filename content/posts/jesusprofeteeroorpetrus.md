@@ -1,0 +1,20 @@
+---
+title: "JESUS PROFETEER OOR PETRUS"
+date: 2023-09-03T05:12:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>Die Bybel gebruik nie die woord profeteer nie, maar Jesus spreek oor Petrus. Die Heilige Gees het die Vader se hart gedeel met Jesus en dit is tog wat profesie is.</p>
+  <p>Voor Jesus gekruisig is:</p>
+  <p>“EN die Here sê: Simon, Simon, kyk, die Satan het vurig begeer om julle soos koring te sif. Maar Ek het vir jou gebid, dat jou geloof nie ophou nie; en as jy eendag bekeerd is, moet jy jou broeders versterk. En hy het vir Hom gesê: Here, ek is gereed om saam met U selfs in die gevangenis en in die dood te gaan. Maar Hy antwoord: Ek sê vir jou, Petrus, die haan sal vannag nie kraai voordat jy drie maal geloën het dat jy My ken nie.”<br>‭‭LUKAS‬ ‭22‬:‭31‬-‭34‬ ‭AFR53‬‬</p>
+  <p>Jesus deel Petrus se toekoms met hom en dit is nie alles positief nie. Ek glo dit was ‘n waarskuwing vir Petrus, maar Petrus het nie begrip gehad vir wat Jesus met hom wou deel nie. Eers nadat Petrus vir Jesus verloën het, het Petrus Jesus se woorde onthou.</p>
+  <p>“Maar Petrus antwoord: Man, ek weet nie wat jy sê nie. En onmiddellik, terwyl hy nog praat, het die haan gekraai. En die Here het Hom omgedraai en Petrus aangekyk, en Petrus het die woord van die Here onthou wat Hy vir hom gesê het: Voordat die haan kraai, sal jy My drie maal verloën. En Petrus het buitentoe gegaan en bitterlik geween.”<br>‭‭LUKAS‬ ‭22‬:‭60‬-‭62‬ ‭AFR53‬‬</p>
+  <p>Voor Jesus se hemelvaart:</p>
+  <p>“Toe hulle dan klaar was met die môre-ete, vra Jesus vir Simon Petrus: Simon, seun van Jona, het jy My waarlik lief, meer as hulle hier? Hy antwoord Hom: Ja, Here, U weet dat ek U liefhet. Hy sê vir hom: Laat my lammers wei. Hy vra hom weer die tweede maal: Simon, seun van Jona, het jy My waarlik lief? Hy antwoord Hom: Ja, Here, U weet dat ek U liefhet. Hy sê vir hom: Pas my skape op. Hy vra hom die derde maal: Simon, seun van Jona, het jy My lief? Petrus het bedroef geword, omdat Hy hom die derde maal vra: Het jy My lief? En hy antwoord Hom: Here, U weet alles, U weet dat ek U liefhet. Jesus sê vir hom: Laat my skape wei. Voorwaar, voorwaar Ek sê vir jou, toe jy jonger was, het jy jouself gegord en rondgegaan waar jy wou; maar wanneer jy oud geword het, sal jy jou hande uitsteek, en 'n ander een sal jou gord en bring waar jy nie wil wees nie. En dit het Hy gesê om aan te dui deur hoedanige dood hy God sou verheerlik; en toe Hy dit gespreek het, sê Hy vir hom: Volg My.”<br>‭‭JOHANNES‬ ‭21‬:‭15‬-‭19‬ ‭AFR53‬‬</p>
+  <p>Petrus het Jesus 3 maal verloën, selfs nadat Petrus ‘n profesie gehad het dat hy dit sou doen. Petrus was bitter jammer en het vergifnis gevra. Jesus bring volle restorasie vir Petrus deur vir hom 3 opdragte te gee. Jesus het die versorging van Sy “skape” aan Petrus toevertrou. Dan maak Jesus dit duidelik dat Petrus ‘n lang lewe sal hê, maar dat Petrus ‘n tragiese dood sal hê. Meeste skrywers glo dat Petrus gevangene geneem is vir sy geloof en onderstebo gekruisig is.</p>
+  <p>Ons kan sien dat dit baie belangrik is om ‘n profesie te koester en te vra dat die Heilige Gees vir ons insig en wysheid daaroor gee. Ons moenie waarskuwings ignoreer nie. As ons ‘n fout maak en iets mis sal God ons vergewe. Wanneer ons ‘n negatiewe woord ontvang kry ons geleentheid om ons gedrag te verander en kan ons slaggate vermy. Met Jesus is daar altyd ‘n geleentheid vir restorasie. Die Passion Translation sê dat ons ‘n profesie kan gebruik as ‘n wapen in geeestelike oorlogvoering.</p>
+  <p>1 Timothy 1:18-19 TPT<br>So Timothy, my son, I am entrusting you with this responsibility, in keeping with the very first prophecies that were spoken over your life, and are now in the process of fulfillment in this great work of ministry, in keeping with the prophecies spoken over you. With this encouragement use your prophecies as weapons as you wage spiritual warfare by faith and with a clean conscience. For there are many who reject these virtues and are now destitute of the true faith,<br>&nbsp;</p>
+ </body>
+</html>
