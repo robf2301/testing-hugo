@@ -1,12 +1,12 @@
 ---
 title: "Rosh Hashanah"
-date: 2023-09-16T05:01:00+02:00
+date: 2023-09-16T06:35:00+02:00
 draft: false
 ---
 <html>
  <head></head>
  <body>
-  <p>Joodse Nuwejaar/ Rosh Hashanah/ Fees van trompette/Yom Teruah - “day of shouting or blasting”</p>
+  <p>Joodse Nuwejaar/ Rosh Hashanah/ Fees van trompette/Yom Teruah - day of shouting or blasting</p>
   <p>“Spreek met die kinders van Israel en sê: In die sewende maand, op die eerste van die maand, moet dit vir julle 'n rusdag wees, 'n gedenkdag deur basuingeklank, 'n heilige vierdag.”<br>‭‭LEVÍTIKUS‬ ‭23‬:‭24‬ ‭AFR53‬‬</p>
   <p>Hierdie fees word op die eerste dag van die sewende maand gehou en word met ‘n basuinklank aangekondig. Dit mag vir jou vreemd klink dat die sewende maand die “Nuwejaar” is. Volgens die godsdienstige kalender is dit die sewende maand, maar volgens die siviële kalender is dit die eerste maand. Die Jode glo dit is die dag waarop alles begin het en Adam en Eva geskape is. Toe Israel uit Egipte trek het God die kalender verander en ‘n nuwe eerste maand aangekondig met die eerste Pasga. Maart/April/ Nisan word dus die eerste maand en September/Oktober/Tishrei die sewende maand - Exodus 12. Hulle werk op ‘n maan kalender en die fees strek oor 2 dae. Die fees begin dus met sononder Vrydagaand 15 September tot Sondagaand 17 September 2023.</p>
   <p>Daar is baie simboliek in die eerste maand wat ook die sewende maand is. Wanneer ‘n Christen ouer word of dit aand word in jou lewe begin ‘n nuwe dag in die Hemel vir jou. Wanneer jy jou laaste of sewende dag bereik word dit jou eerste dag by God.</p>
