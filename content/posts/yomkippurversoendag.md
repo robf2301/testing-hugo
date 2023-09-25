@@ -1,0 +1,17 @@
+---
+title: "Yom Kippur/Versoendag"
+date: 2023-09-25T04:16:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>Versoendag/ Yom Kippur/ “Day of Atonement”</p>
+  <p>“Maar op die tiende van hierdie sewende maand is dit die versoendag. 'n Heilige vierdag moet dit vir julle wees; dan moet julle jul verootmoedig en aan die Here 'n vuuroffer bring. En op daardie selfde dag mag julle géén werk doen nie, want dit is 'n versoendag om vir julle versoening te doen voor die aangesig van die Here julle God.”<br>‭‭LEVÍTIKUS‬ ‭23‬:‭27‬-‭28‬ ‭AFR53‬‬</p>
+  <p>Versoendag is op die tiende dag van die sewende maand gevier. Hierdie jaar is dit van sononder 24 September tot sononder 25 September 2023. Die basuin (ramshoring) moet op die Versoendag geblaas word - Levítikus 25:9. Op die versoendag moes Aäron 1 bul en 2 bokke voor God bring - Levítikus 16. Die bul moes hy offer vir sy sonde en die sonde van die ander priesters en Leviete. Die 1 bok moes hy offer vir die sonde van die Israeliete. Vandaar die term sondebok. Die ander bok Asásel (“dismissal” - verwydering) moes weggejaag word die woestyn in. Asásel is ook die naam van ‘n gevalle engel. Soos die engel totaal en al uit God se teenwoordigheid verwyder is, is die mense se sonde ook verwyder. Die bokke het die vergifnis en die verwydering van sonde uitgebeeld. Die bloed van die diere moes dan o.a. op die versoendeksel (“mercy seat”) gesprinkel word. Op die versoendeksel van die verbondsark het God dan op elke Versoendag verskyn.</p>
+  <p>“en die Here het aan Moses gesê: Spreek met jou broer Aäron dat hy nie te eniger tyd moet ingaan in die heiligdom nie, binnekant die voorhangsel, voor die versoendeksel wat op die ark is, sodat hy nie sterwe nie; want Ek verskyn in die wolk op die versoendeksel.”<br>‭‭LEVÍTIKUS‬ ‭16‬:‭2‬ ‭AFR53‬‬</p>
+  <p>Yom Kippur word beskou as die heiligste dag op die Joodse kalender. Ek glo Jesus is gebore op ‘n Versoendag. Maria het swanger geraak op Kersdag en 9 maande later op die Versoendag geboorte geskenk. Suid- Korea is die enigste land wat “conception” dag beskou as jou verjaarsdag. Ons vier Jesus se verjaarsdag op die dag wat Maria swanger geword het. Dit herinner ons dat &nbsp;‘n baba onmiddelik lewe en dat aborsie moord is. Jesus het versoening gebring vir ons sondes. Immanuel is gebore wat beteken “God met ons”. Jesus het verskyn net soos wat God op die versoendeksel verskyn het. Die engele het ‘n versoeningsboodskap van God gebring: &nbsp;“vrede op aarde, in die mense ‘n welbehae”. Drie en dertig jaar later met Jesus se kruisiging is Sy bloed op die versoendeksel in die Hemel gesprinkel om te betaal vir ons sonde. Bybel navorsers dink dat die verbondsark weg was en nooit in die tweede tempel geplaas is nie. Sommige navorsers beweer die verbondsark is gevind en sal in die derde tempel gebruik word.</p>
+  <p>“Want Christus het nie ingegaan in 'n heiligdom met hande gemaak, 'n teëbeeld van die ware nie, maar in die hemel self om nou voor die aangesig van God vir ons te verskyn; ook nie om Homself dikwels te offer, soos die hoëpriester elke jaar in die heiligdom ingaan met bloed wat nie sy eie is nie, want dan moes Hy dikwels gely het van die grondlegging van die wêreld af. Maar nou het Hy een maal in die voleinding van die eeue verskyn om die sonde deur sy offer weg te doen.”<br>‭‭HEBREËRS‬ ‭9‬:‭24‬-‭26‬ ‭AFR53‬‬</p>
+  <p>Deur Jesus se geboorte en Sy dood waar die bloed vir die laaste keer gesprinkel is, is die Versoendag vervul.&nbsp;<br>&nbsp;</p>
+ </body>
+</html>
