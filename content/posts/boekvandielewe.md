@@ -1,0 +1,31 @@
+---
+title: "BOEK VAN DIE LEWE"
+date: 2023-09-29T07:02:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>God het ‘n plan vir elke mens se lewe. Die plan is opgeskryf in “Die Boek Van Die Lewe” lank voor jou geboorte.</p>
+  <p>JEREMIA</p>
+  <p>“Die woord van die Here het dan tot my gekom en gesê: Voordat Ek jou in die moederskoot gevorm het, het Ek jou geken; en voordat jy uit die liggaam voortgekom het, het Ek jou geheilig; Ek het jou tot 'n profeet vir die nasies gemaak.”<br>‭‭JEREMIA‬ ‭1‬:‭4‬-‭5‬ ‭AFR53‬‬</p>
+  <p>JESUS</p>
+  <p>Die Ou Testament is basies Jesus se “Boek”. Dit is vol beloftes van ons Redder wat kom. Hy word Immánuel, die tak, die kindjie, die rots, ‘n lam ens. genoem. Die Bybel wys God se wil vir Jesus se lewe. Elke redder (Dawid, Josef, Jona of Moses) in die Bybel is ‘n skaduwee van Jesus.</p>
+  <p>“Toe het Ek gesê: Kyk, Ek kom — in die boekrol is dit van My geskrywe — om u wil te doen, o God.”<br>‭‭HEBREËRS‬ ‭10‬:‭7‬ ‭AFR53‬‬</p>
+  <p>“Want 'n Kind is vir ons gebore, 'n Seun is aan ons gegee; en die heerskappy is op sy skouer, en Hy word genoem: Wonderbaar, Raadsman, Sterke God, Ewige Vader, Vredevors — tot vermeerdering van die heerskappy en tot vrede sonder einde, op die troon van Dawid en oor sy koninkryk, om dit te bevestig en dit te versterk deur reg en deur geregtigheid, van nou af tot in ewigheid. Die ywer van die Here van die leërskare sal dit doen.”<br>‭‭JESAJA‬ ‭9‬:‭5‬-‭6‬ ‭AFR53‬‬</p>
+  <p>“Hy tog het soos 'n loot voor sy aangesig opgespruit en soos 'n wortel uit droë grond. Hy het geen gestalte of heerlikheid gehad, dat ons Hom sou aansien nie, en geen voorkoms, dat ons Hom sou begeer nie. Hy was verag en deur die mense verlaat, 'n man van smarte en bekend met krankheid; ja, soos een vir wie 'n mens sy gelaat verberg; Hy was verag en ons het Hom nie geag nie. Nogtans het Hý óns krankhede op Hom geneem, en óns smarte — dié het Hy gedra; maar óns het Hom gehou vir een wat geplaag, deur God geslaan en verdruk was. Maar Hy is ter wille van ons oortredinge deurboor, ter wille van ons ongeregtighede is Hy verbrysel; die straf wat vir ons die vrede aanbring, was op Hom, en deur sy wonde het daar vir ons genesing gekom. Ons almal het gedwaal soos skape, ons het elkeen sy eie pad geloop; maar die Here het die ongeregtigheid van ons almal op Hom laat neerkom. Hy is mishandel, hoewel Hy onderworpe was, en Hy het sy mond nie oopgemaak nie; soos 'n lam wat na die slagplek gelei word en soos 'n skaap wat stom is voor sy skeerders — ja, Hy het sy mond nie oopgemaak nie. Uit die druk en uit die strafgerig is Hy weggeneem; en onder sy tydgenote — wie het daaroor gedink dat Hy afgesny is uit die land van die lewendes? Ter wille van die oortreding van my volk was die plaag op Hom. En hulle het Hom sy graf by die goddelose gegee; en by 'n ryke was Hy in sy dood, omdat Hy geen onreg gedoen het nie en geen bedrog in sy mond gewees het nie. Maar dit het die Here behaag om Hom te verbrysel; Hy het Hom krank gemaak; as sy siel 'n skuldoffer aangebied het, sal Hy 'n nakroos sien; Hy sal die dae verleng, en die welbehae van die Here sal deur sy hand voorspoedig wees. Weens die moeitevolle lyde van sy siel sal Hy dit sien en versadig word; deur sy kennis sal my Kneg, die Regverdige, baie regverdig maak; en Hý sal hulle skuld dra. Daarom sal Ek Hom 'n deel gee onder die grotes, en met magtiges sal Hy buit verdeel; omdat Hy sy siel uitgestort het in die dood en saam met die oortreders getel was, terwyl Hy tog die sonde van baie gedra en vir die oortreders gebid het.”<br>‭‭JESAJA‬ ‭53‬:‭2‬-‭12‬ ‭AFR53‬‬</p>
+  <p>“EN jy, Betlehem Éfrata, klein om te wees onder die geslagte van Juda, uit jou sal daar vir My uitgaan een wat 'n Heerser in Israel sal wees; en sy uitgange is uit die voortyd, uit die dae van die ewigheid.”<br>‭‭MIGA‬ ‭5‬:‭1‬ ‭AFR53‬‬</p>
+  <p><br>PAULUS</p>
+  <p>“Maar toe dit God behaag het, wat my afgesonder het van die skoot van my moeder af en deur sy genade geroep het, om sy Seun in my te openbaar, sodat ek Hom onder die heidene sou verkondig, het ek dadelik nie vlees en bloed geraadpleeg nie,”<br>‭‭GALÁSIËRS‬ ‭1‬:‭15‬-‭16‬ ‭AFR53‬‬</p>
+  <p><br>JOU BOEK VAN DIE LEWE</p>
+  <p>“Want Ú het my niere gevorm, my in my moeder se skoot geweef. Ek loof U, omdat ek so vreeslik wonderbaar is; wonderbaar is u werke! En my siel weet dit alte goed. My gebeente was vir U nie verborge toe ek in die geheim gemaak is nie, kunstig geweef in die dieptes van die aarde. U oë het my ongevormde klomp gesien; en in u boek is hulle almal opgeskrywe: dae dat alles bepaal was, toe nog geeneen van hulle daar was nie. Hoe kosbaar is dan vir my u gedagtes, o God! Hoe geweldig is hulle volle som nie! Wil ek hulle tel, hulle is meer as die sand; word ek wakker, dan is ek nog by U.”<br>‭‭PSALMS‬ ‭139‬:‭13‬-‭18‬ ‭AFR53‬‬</p>
+  <p>Meeste Christene weet God het ‘n “Boek” en ‘n plan vir hulle lewens. Nou moet jy ‘n manier vind om toegang tot jou “Boek” te kry. Wanneer jy stil word, Jesus begin soek en die Woord lees plaas jy jouself in ‘n posisie om van God te hoor.</p>
+  <p>“Die verborge dinge is vir die Here onse God; maar die geopenbaarde dinge is vir ons en ons kinders tot in ewigheid, om te doen al die woorde van hierdie wet.”<br>‭‭DEUTERONÓMIUM‬ ‭29‬:‭29‬ ‭AFR53‬‬</p>
+  <p>“Want Ék weet watter gedagtes Ek aangaande julle koester, spreek die Here, gedagtes van vrede en nie van onheil nie, om julle 'n hoopvolle toekoms te gee. Dan sal julle My aanroep en heengaan en tot My bid, en Ek sal na julle luister. En julle sal My soek en vind as julle na My vra met julle hele hart.”<br>‭‭JEREMIA‬ ‭29‬:‭11‬-‭13‬ ‭AFR53‬‬</p>
+  <p>“Roep My aan, en Ek sal jou antwoord en jou bekend maak groot en ondeurgrondelike dinge wat jy nie weet nie.”<br>‭‭JEREMIA‬ ‭33‬:‭3‬ ‭AFR53‬‬</p>
+  <p>Jesus het tyd vir die Vader gemaak en kon dus God se wil vir Sy lewe uitleef. Soos jy tyd maak vir Jesus sal Hy inligting uit jou “Boek” met jou deel.</p>
+  <p>“En Jesus het toegeneem in wysheid en grootte en in genade by God en die mense.”<br>‭‭LUKAS‬ ‭2‬:‭52‬ ‭AFR53‬‬</p>
+  <p>&nbsp;</p>
+  <p>&nbsp;</p>
+ </body>
+</html>
