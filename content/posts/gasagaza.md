@@ -1,13 +1,13 @@
 ---
 title: "GASA (GAZA)"
-date: 2023-10-12T07:06:00+02:00
+date: 2023-10-12T07:43:00+02:00
 draft: false
 ---
 <html>
  <head></head>
  <body>
   <p>Ons almal het ons opinie oor die oorlog in Israel. Dit is belangrik om te weet wat God sê oor Gasa. Ek het elke vers oor Gasa opgesoek en dit is duidelik dat daar altyd ‘n stryd was oor die besetting van Gasa. Ons weet dat die geestelike geveg nog groter is as die fisiese oorlog.</p>
-  <p>Gasa is aan die suidwestelike grens van Israel en oos van die Mediterreense See. Aan die noorde grens Gasa aan Egipte. Gasa is deur Egipte beheer tot met die “Ses Dag Oorlog” in 1967 wanneer Israel beheer daaroor geneem het. In 2005 het Israel geheel en al beheer van die area oorhandig aan Palestinië. &nbsp;Met ‘n verkiesing in 2006 het Hamas gewen en die terroriste groep het sedertien geen verkiesings in Gasa toegelaat nie. Daar woon ongeveer 2,3 miljoen mense in Gasa. Die “gewone mense” in Gasa is baie arm en kry swaar onder Hamas. Daar is gereeld konflik tussen Israel en die Gasa - Strook.</p>
+  <p>Gasa is aan die suidwestelike grens van Israel en oos van die Mediterreense See. Die noorde van Egipte grens aan Gasa. Gasa is deur Egipte beheer tot met die “Ses Dag Oorlog” in 1967 wanneer Israel beheer daaroor geneem het. In 2005 het Israel geheel en al beheer van die area oorhandig aan Palestinië. &nbsp;Met ‘n verkiesing in 2006 het Hamas gewen en die terroriste groep het sedertien geen verkiesings in Gasa toegelaat nie. Daar woon ongeveer 2,3 miljoen mense in Gasa. Die “gewone mense” in Gasa is baie arm en kry swaar onder Hamas. Daar is gereeld konflik tussen Israel en die Gasa - Strook.</p>
   <p>Gasa - Strong’s H 5804 &amp; G1048 - “strong” - sterk</p>
   <p>Die Israeliete het Kanaän as erfdeel van God ontvang. Die Gasa - Strook en die Wesbank wat vandag deur die Palestyne beheer word was deel van die erfporsie van die stam van Juda (die Jode). Josua en die Israeliete het nooit die Gasa - Strook ingeneem nie.</p>
   <p>“En die gebied van die Kanaäniete was van Sidon af in die rigting van Gerar tot by Gasa, in die rigting van Sodom en Gomorra en Adma en Sebóim tot by Lesa.”<br>‭‭GÉNESIS‬ ‭10‬:‭19‬ ‭AFR53‬‬‬‬</p>
