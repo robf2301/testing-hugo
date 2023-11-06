@@ -1,0 +1,24 @@
+---
+title: "DIE LAASTE ADAM"
+date: 2023-11-06T04:24:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>Jesus word die laaste Adam genoem.</p>
+  <p>“So is daar ook geskrywe: Die eerste mens, Adam, het 'n lewende siel geword; die laaste Adam 'n lewendmakende Gees. Die geestelike ewenwel is nie eerste nie, maar die natuurlike; daarna die geestelike. Die eerste mens was uit die aarde aards, die tweede mens is die Here uit die hemel.”<br>‭‭I KORINTHIËRS‬ ‭15‬:‭45‬-‭47‬ ‭AFR53‬‬</p>
+  <p>Die Vader, Seun (Johannes 1:1-3) en Heilige Gees (Génesis 1:2) het Adam en Eva geskape na God se beeld. God het Adam uit die stof geskape en daarna Sy asem in hom geblaas. Robin D. Bullock glo dat God in die stof gaan lê het en ‘n vorm (“mold”) gemaak het van Homself en dit is hoe Hy Adam in Sy beeld gemaak het. Adam (ish) was ‘n stukkie van God en Eva (ishah) was ‘n stukkie van Adam.</p>
+  <p>“En God het gesê: Laat Ons mense maak na ons beeld, na ons gelykenis, en laat hulle heers oor die visse van die see en die voëls van die hemel en die vee en oor die hele aarde en oor al die diere wat op die aarde kruip. En God het die mens geskape na sy beeld; na die beeld van God het Hy hom geskape; man en vrou het Hy hulle geskape. En God het hulle geseën, en God het vir hulle gesê: Wees vrugbaar en vermeerder en vul die aarde, onderwerp dit en heers oor die visse van die see en die voëls van die hemel en oor al die diere wat op die aarde kruip.”<br>‭‭GÉNESIS‬ ‭1‬:‭26‬-‭28‬ ‭AFR53‬‬</p>
+  <p>“En die Here God het die mens geformeer uit die stof van die aarde en in sy neus die asem van die lewe geblaas. So het dan die mens 'n lewende siel geword. Ook het die Here God gesê: Dit is nie goed dat die mens alleen is nie. Ek sal vir hom 'n hulp maak wat by hom pas. Toe het die Here God 'n diepe slaap op die mens laat val; en terwyl hy slaap, het Hy een van sy ribbebene geneem en die plek daarvan met vlees toegemaak. En die Here God bou die rib wat Hy van die mens geneem het, tot 'n vrou en bring haar na die mens. Toe sê die mens: Dit is nou eindelik been van my gebeente en vlees van my vlees. Sy sal mannin genoem word, want sy is uit die man geneem. Daarom sal die man sy vader en moeder verlaat en sy vrou aankleef. En hulle sal een vlees wees.”<br>‭‭GÉNESIS‬ ‭2‬:‭7‬, ‭18‬, ‭21‬-‭24‬ ‭AFR53‬‬</p>
+  <p>Die mens was van die die begin gemaak om deel van God te wees. Man en vrou word een vlees wanneer hulle trou. Die bruid benodig haar Bruidegom om een met God te wees.</p>
+  <p>“soos Hy ons in Hom uitverkies het voor die grondlegging van die wêreld om heilig en sonder gebrek voor Hom in liefde te wees,”<br>‭‭EFÉSIËRS‬ ‭1‬:‭4‬ ‭AFR53‬‬</p>
+  <p>“In dié dag sal julle weet dat Ek in my Vader is, en julle in My, en Ek in julle. Jesus antwoord en sê vir hom: As iemand My liefhet, sal hy my woord bewaar, en my Vader sal hom liefhê, en Ons sal na hom toe kom en by hom woning maak.”<br>‭‭JOHANNES‬ ‭14‬:‭20‬, ‭23‬ ‭AFR53‬‬</p>
+  <p>God het Sy hand in Adam se sy gesteek en Eva is geskep. Die laaste Adam is met ‘n spies in Sy sy gesteek en bloed en water het uitgekom. Die bloed en water was die teken dat die “nuwe mens” gebore sou word. Met Jesus se dood het Hy betaal sodat die mensdom meer soos Hy kon wees.&nbsp;<br>Ons kan nou lewe uit die Gees en nie uit die vlees nie.</p>
+  <p>“Maar een van die soldate het met 'n spies in sy sy gesteek, en dadelik het daar bloed en water uitgekom.”<br>‭‭JOHANNES‬ ‭19‬:‭34‬ ‭AFR53‬‬</p>
+  <p>“Dit is Hy wat deur water en bloed gekom het, Jesus die Christus; nie deur die water alleen nie, maar deur die water en die bloed; en dit is die Gees wat getuig, want die Gees is die waarheid. Want daar is drie wat getuig in die hemel: die Vader, die Woord en die Heilige Gees, en hierdie drie is een; en daar is drie wat getuig op die aarde: die Gees en die water en die bloed, en die drie is eenstemmig.”<br>‭‭I JOHANNES‬ ‭5‬:‭6‬-‭8‬ ‭AFR53‬‬</p>
+  <p>Adam en Eva het in ‘n pragtige, perfekte wêreld gebly en hulle moes heers oor die aarde. Adam en Eva het geluister na satan en daarom hulle outoriteit verloor. Die laaste Adam is deur die Gees na die woestyn gelei waar Hy die outoriteit teruggeneem het deur satan te weerstaan - Matthéüs 4:1-11. Jesus is eers gevul met die Heilige Gees en daarna het Hy die outoriteit teruggeneem, wat Adam verloor het. Die mense was verbaas toe hulle Jesus se outoriteit sien, want hulle was nie daaraan gewoond nie. Die bruid van Christus moet saam met haar Bruidegom heers oor die aarde. Jy het outoriteit ontvang om meer as Jesus te doen. Mense sal verbaas wees wanneer hulle jou outoriteit sien.</p>
+  <p>&nbsp;</p>
+  <p>&nbsp;</p>
+ </body>
+</html>
