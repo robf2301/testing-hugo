@@ -1,0 +1,28 @@
+---
+title: "HANUKKAH/CHANUKAH"
+date: 2023-12-07T04:21:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p><strong>HANUKKAH/CHANUKAH/FEES VAN LIGTE/FEES VAN DIE TEMPEL TOEWYDING</strong></p>
+  <p>Hierdie jaar is die fees van sononder 7-15 Desember 2023.</p>
+  <p>In 200 v.C. was Antiochus III van Sirië in beheer van die land Israel. Hy het die mense toegelaat om God te aanbid en hulle feeste te vier. Na sy dood het sy seun Antiochus IV Epiphanes regeer. Hy wou hê dat die mense griekse gode moes aanbid en het in 168 v.C. Jerusalem aangeval. Duisende mense is dood en hy het ‘n altaar vir Zeus laat oprig in die tweede tempel. Varke is as offers gebring in God se heilige tempel.</p>
+  <p>Die Joodse priester Mattathias Maccabee en sy 5 seuns het in opstand gekom teen die Siriëse bewind. Na Mattathias se dood in 166 v.C. het sy seun Judas Maccabee oorgeneem en hulle het die Siriërs verslaan. Die tempel moes gereinig word en die menorah (lamp) met sy 7 “takke” moes brand. Ongelukkig was daar net genoeg suiwer olyfolie vir 1 dag. God het ‘n wonderwerk laat gebeur en die bietjie suiwer olyfolie het vir 8 dae die menorah laat brand totdat hulle olie kon maak.</p>
+  <p>“EN die Here het met Moses gespreek en gesê: Gee bevel aan die kinders van Israel dat hulle vir jou suiwer, uitgestampte olyfolie vir die kandelaar moet bring, om gedurigdeur 'n brandende lamp te hê. Aäron moet dit buitekant die voorhangsel van die Getuienis, in die tent van samekoms, regmaak om te brand van die aand tot die môre voor die aangesig van die Here, gedurigdeur. Dit is 'n ewige insetting vir julle geslagte.”<br>‭‭LEVÍTIKUS‬ ‭24‬:‭1‬-‭3‬ ‭AFR53‬‬</p>
+  <p>Die wonderwerk het gelei tot Hanukkah of die Fees van ligte. Die woord Hanukkah beteken toewyding. Die tradisionele menorah (lamp) het 7 “takke” terwyl die hanukkiah 9 “takke” het. Die negende tak (shamash - helper) is hoër en word gebruik om die ander aan te steek. Dit verteenwoordig God wat die liggewer is. Toe Jesus na Homself as die Lig van die wêreld verwys het kon sommige verstaan dat Hy deel van God was en ander het aanstoot geneem. Die fees word vir 8 dae gehou en elke dag word nog ‘n liggie aangesteek.</p>
+  <p>Die tempel menorah was van goud gemaak - Exodus 25:31-40, 37:17-24. God het op die berg vir Moses ‘n voorbeeld gewys sodat Moses geweet het hoe om dit te maak. Gewoonlik sal die hanukkiah in ‘n vensterbank geplaas word sodat mense wat verby stap dit kan raaksien. Hierdie jaar met die toename van antisemitisme sal nie almal dit doen nie. Jesus het ook die fees in Jerusalem bygewoon.</p>
+  <p>“EN dit was die fees van die tempelwyding in Jerusalem, en dit was winter.”<br>“En Jesus het in die tempel gewandel in die pilaargang van Salomo.”<br>‭‭JOHANNES‬ ‭10‬:‭22-23‬ ‭AFR53‬‬<br>‭‭<br>Christene hoef nie die fees te vier nie, maar dit is altyd goed om oor die goedheid van God te praat.</p>
+  <p><strong>HANUKKAH/CHANUKAH FEAST OF LIGHTS OR TEMPLE DEDICATION</strong></p>
+  <p>This year Hanukkah is celebrated from sundown 7 till 15 December 2023.</p>
+  <p>Antiochus III from Syria was ruling over Israel in 200 BC. He allowed the people to worship God. After his death his son Antiochus IV Epiphanes ruled. He forced the people to worship greek gods and invaded Jerusalem in 168 BC. Many Jews died and he defiled the temple by bringing Zeus into the second temple. Pigs were also sacrificed in the holy temple.</p>
+  <p>The Jewish priest Mattathias Maccabee and his 5 sons started a revolt against the Syrians. After Mattathias death in 166 BC, his son Judah Maccabee led the revolt and they took Jerusalem back. The temple had to be sanctified and the menorah (lamp) with its 7 branches had to burn. Unfortunately there was only enough pure olive oil for the menorah to burn 1 day. God supernaturally made the oil last for 8 days until the people could produce new oil.</p>
+  <p>Leviticus 24:1-3 MEV<br>And the LORD spoke to Moses, saying: [2] Command the children of Israel that they bring to you pure olive oil beaten for the lamp, to cause the lamps to burn continually. [3] Outside the veil of the sanctuary, in the tent of meeting, Aaron shall arrange it continually, from the evening until the morning before the LORD. It shall be a perpetual statute in your generations.</p>
+  <p>This miracle led to the feast of Hanukkah or Feast of Lights. The word Hanukkah means dedication. The traditional menorah has 7 branches, while the hanukkiah has 9 branches. The ninth branch (shamash - helper) is a bit higher and represents God, the Light giver. When Jesus referred to Himself as the Light of the world some people understood that He was part of God and others were offended. The feast is celebrated over 8 days and every day 1 more light is lit.</p>
+  <p>The temple menorah was made from gold - Exodus 25:31-40, 37:17-24. When Moses was on the mountain God showed him an example of a menorah so they could reproduce it. It’s a tradition to place the hanukkiah on a windowsill that people can see it from the street. With the worldwide increase in antisemitism this year some people might not do it. Jesus attended the feast in Jerusalem.</p>
+  <p>John 10:22-23 MEV<br>The Feast of the Dedication was at Jerusalem, and it was winter.&nbsp;<br>Jesus walked in the temple in Solomon's Porch.</p>
+  <p>Christians don’t have to celebrate the feast, but its always good to talk about the goodness of God.</p>
+  <p>&nbsp;</p>
+ </body>
+</html>
