@@ -1,5 +1,5 @@
 ---
-title: "DREAM ABOUT DISCEPTION"
+title: "DREAM ABOUT DESCEPTION"
 date: 2024-03-23T05:42:00+02:00
 draft: false
 ---

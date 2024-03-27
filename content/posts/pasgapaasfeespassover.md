@@ -1,5 +1,5 @@
 ---
-title: "PASGA &PAASFEES/PASSOVER"
+title: "PASGA & PAASFEES/PASSOVER"
 date: 2024-03-27T07:53:00+02:00
 draft: false
 ---
