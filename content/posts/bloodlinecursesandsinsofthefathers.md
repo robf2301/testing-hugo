@@ -1,6 +1,6 @@
 ---
 title: "BLOODLINE CURSES AND SINS OF THE FATHERS"
-date: 2024-05-13T05:13:00+02:00
+date: 2024-05-13T05:25:00+02:00
 draft: false
 ---
 <html>
