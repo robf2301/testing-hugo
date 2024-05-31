@@ -1,0 +1,21 @@
+---
+title: "DAYS OF NOAH"
+date: 2024-05-31T04:33:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>Matthew 24:37 KJV<br>But as the days of Noe were, so shall also the coming of the Son of man be.</p>
+  <p>Matthew 24:37 TPT<br>For it will be like it was in the days of Noah when the Son of Man appears.</p>
+  <p>Strong’s H5146 Noah: rest<br>Strong’s G3575 Noe: rest - The KJV Bible use the Greek word Noe instead of Noah in Matthew and Luke while the books of Hebrews and Peter use the name Noah like the Old Testament. The meaning stays the same; both means “rest”.</p>
+  <p>People have been talking about this verse and wondering what the days of Noah were really like. We know Noah was a righteous man. We don’t know if his family was righteous or whether they were saved, due to Noah’s relationship with the Father. Noah also came from a bloodline of people that were righteous and pure and our Saviour Jesus was born from this line - Genesis 5, Luke 3. Noah means rest and we know his family could safely rest in the ark while it was flooding outside.</p>
+  <p>Genesis 6:9 TPT<br>This is the story of Noah. Noah was a godly man of integrity, without fault in his generation, and he lived close to God.</p>
+  <p>In the time of Noah there was some kind of genetic mixing amongst the people and probably the animals, since they also had to die during the Flood. The point is the people were living in sin and they weren’t pure in their genetics or generations.</p>
+  <p>Genesis 6:5-7 KJV<br>And GOD saw that the wickedness of man was great in the earth, and that every imagination of the thoughts of his heart was only evil continually. [6] And it repented the LORD that he had made man on the earth, and it grieved him at his heart. [7] And the LORD said, I will destroy man whom I have created from the face of the earth; both man, and beast, and the creeping thing, and the fowls of the air; for it repenteth me that I have made them.</p>
+  <p>The New Testament states that Christians should think of what’s good, true, honest, pure, lovely and heavenly - Phillipians 4:8, Colossians 3:2. In the days of Noah the people’s minds weren’t transformed (Romans 12:1-2); they just thought about evil things. Today if I look around me I see more and more Christians, but I also see that some people are more evil than before. Isaiah prophesied that in the midst of a deep darkness the light will increase - Isaiah 60:1-2. I believe people are less ashamed of sin and the world is tolerating and justifying sin more and more.</p>
+  <p>Isaiah 5:20 TPT<br>Woe to those who call evil good and good evil, who replace darkness with light and light with darkness, who replace bitter with sweet and sweet with bitter.</p>
+  <p>I don’t think that these are the days of Noah, but I can see that these are the days that Isaiah spoke about. I imagine that after the rapture darkness will rule the earth and it will be like the days of Noah. We will be resting with Jesus. People on earth will still have oppurtunity to repent, but many will not repent during the 7 years of the tribulation - Revelations 16:8-11.</p>
+  <p>Matthew 24:36-44 TPT<br>“Concerning that day and exact hour, no one knows when it will arrive, not even the angels of heaven—only the Father knows. [37] For it will be like it was in the days of Noah when the Son of Man appears. [38] Before the flood, people lived their lives eating, drinking, marrying, and having children. [39] They didn’t realize the end was near until Noah entered the ark, and then suddenly, the flood came and took them all away in judgment. It will happen the same way when the Son of Man appears. [40] At that time, two men will be working on the farm; one will be taken away in judgment, the other left. [41] Two women will be grinding grain; one will be taken away in judgment, the other left. [42] This is why you must stay alert: because no one knows the day your Lord will come. [43] “But realize this: If a homeowner had known what time of night the burglar would come to rob his house, he would have been alert and ready, and not let his house be robbed. [44] So always be ready, alert, and prepared, because at an hour when you’re not expecting him, the Son of Man will come.”<br>&nbsp;</p>
+ </body>
+</html>
