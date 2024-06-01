@@ -1,0 +1,15 @@
+---
+title: "MINORITY"
+date: 2024-06-01T04:59:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>As the votes are counted you might feel discouraged today. Only a small minority voted for the Christian parties. Yes, it would be nice if all the Christians can unite and we all vote for 1 party. I want to encourage you this morning that God sees your heart. He didn’t forget about you. Very often in Scripture His people were a minority, but things changed when He stepped in. God saved Noah and his family from the flood. God saved Lot and his daughters from destruction in Sodom. Elisha’s servant thought they were surrounded by the enemy, but they were actually surrounded by God’s army. God kept Paul and the whole crew safe when their ship was wrecked at Malta. In 1948 the nation of Israel was born in a day, after 6 million Jews were killed.</p>
+  <p>Things are sometimes tough and don’t work out they way we want them to work out, but God is still with us. Jesus gave His life for you and Holy Spirit is constantly with you to guide and encourage you. Don’t let disappointment ruin your race. We will finish well.</p>
+  <p>2 Timothy 4:7-8 KJV<br>I have fought a good fight, I have finished my course, I have kept the faith: [8] Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.</p>
+  <p>2 Kings 6:15-18 KJV<br>And when the servant of the man of God was risen early, and gone forth, behold, an host compassed the city both with horses and chariots. And his servant said unto him, Alas, my master! how shall we do? [16] And he answered, Fear not: for they that be with us are more than they that be with them. [17] And Elisha prayed, and said, LORD, I pray thee, open his eyes, that he may see. And the LORD opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha. [18] And when they came down to him, Elisha prayed unto the LORD, and said, Smite this people, I pray thee, with blindness. And he smote them with blindness according to the word of Elisha.</p>
+  <p>Isaiah 66:6-9 KJV<br>A voice of noise from the city, a voice from the temple, a voice of the LORD that rendereth recompence to his enemies. [7] Before she travailed, she brought forth; before her pain came, she was delivered of a man child. [8] Who hath heard such a thing? who hath seen such things? Shall the earth be made to bring forth in one day? or shall a nation be born at once? for as soon as Zion travailed, she brought forth her children. [9] Shall I bring to the birth, and not cause to bring forth? saith the LORD: shall I cause to bring forth, and shut the womb? saith thy God.<br>&nbsp;</p>
+ </body>
+</html>
