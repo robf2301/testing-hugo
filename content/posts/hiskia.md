@@ -1,0 +1,23 @@
+---
+title: "HISKÍA "
+date: 2024-06-18T15:40:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>Lees 2 Konings 18-20 en 2 Kronieke 29- 32.</p>
+  <p>Hiskía: Strong’s H2396 - God is my krag.</p>
+  <p>Hiskía het God gevolg en was koning oor Juda vir 29 jaar. Hiskia was opreg en daar was nooit weer ‘n koning soos hy nie. Hy het die afgode vernietig, die tempel gereinig en geweier om die koning van Assirië te dien.</p>
+  <p>“En hy het gedoen wat reg was in die oë van die Here net soos sy vader Dawid gedoen het. Hy het die hoogtes afgeskaf en die klippilare verbreek en die heilige boomstamme omgekap en die koperslang wat Moses gemaak het, stukkend gestamp, omdat die kinders van Israel tot op dié dae daarvoor offerrook laat opgaan het; en hy het dit Nehústan genoem. Hy het op die Here, die God van Israel, vertrou, sodat onder al die konings van Juda ná hom en die wat voor hom gewees het, niemand soos hy was nie. Ja, hy het die Here aangehang sonder om van Hom af te wyk en sy gebooie onderhou wat die Here Moses beveel het. En die Here was met hom; waar hy ook heen uittrek, was hy voorspoedig; en hy het in opstand gekom teen die koning van Assirië en hom nie gedien nie. Hy het die Filistyne verslaan tot by Gasa en sy grondgebied, van wagtoring af tot versterkte stad.”<br>‭‭II KONINGS‬ ‭18‬:‭3‬-‭8‬ ‭AFR53‬‬</p>
+  <p>Hosea was die laaste koning van Israel; die koning van Assirië het Israel weggevoer in ballingskap en gevolglik is die 10 stamme versprei tussen die nasies. Assirië het later ook stede in Juda aangeval en dit verower. &nbsp;In sy oomblik van nood moes Hiskía na God gedraai het, maar hy het sy eie planne gemaak. Uit vrees het Hiskía dadelik skuld erken en silwer en goud uit die tempel geneem en aan die koning van Assirië gestuur. Eers toe Sánherib vir Jerusalem wou inneem het Hiskía na die tempel gegaan en God om hulp gevra. Toe daar ‘n brief met ‘n negatiewe boodskap kom het Hiskía weer na die tempel gegaan en God om hulp gevra.</p>
+  <p>“EN toe koning Hiskía dit hoor, het hy sy klere geskeur en hom met 'n roukleed bedek en in die huis van die Here gegaan.”<br>‭‭II KONINGS‬ ‭19‬:‭1‬ ‭AFR53‬‬</p>
+  <p>“En Hiskía het voor die aangesig van die Here gebid en gesê: Here, God van Israel, wat op die gérubs troon, U alleen is die God van al die koninkryke van die aarde, Ú het die hemel en die aarde gemaak!&nbsp;<br>Verlos ons dan nou tog uit sy hand, Here onse God, dat al die koninkryke van die aarde kan weet dat U, Here, alleen God is.”<br>‭‭II KONINGS‬ ‭19‬:‭15‬, ‭19‬ ‭AFR53‬‬</p>
+  <p>God het ingetree en die Engel van die Here het 185 000 soldate verslaan. Sánherib het teuggekeer na sy land waar sy seuns hom vermoor het.<br>Later het Hiskía dodelik siek geraak. God het hom genees en nog 15 jaar gegee. Die sonwyser het 10 grade (tree) terugbeweeg as teken dat Hiskía sou lewe.</p>
+  <p>“Draai om en sê vir Hiskía, die vors van my volk: So spreek die Here, die God van jou vader Dawid: Ek het jou gebed gehoor, Ek het jou trane gesien; kyk, Ek sal jou gesond maak; op die derde dag sal jy opgaan na die huis van die Here. En Ek sal vyftien jaar by jou dae byvoeg en jou en hierdie stad uit die hand van die koning van Assirië red, en ook hierdie stad beskut ter wille van My en my kneg Dawid.”<br>‭‭II KONINGS‬ ‭20‬:‭5‬-‭6‬ ‭AFR53‬‬</p>
+  <p>Toe hulle hoor van sy siekte het die koning van Babel se seun vir Hiskía besoek. Hiskía was trots en arrogant en het al sy skatte vir die besoekers gewys. Die profeet Jesaja moes die tragiese nuus met Hiskía deel dat alles en almal na Babel weggevoer sou word, na Hiskía se dood. Hiskía was verlig dat dit nie in sy leeftyd sou gebeur nie. As Hiskía net vergifnis gevra het sou God gehelp het. Hiskía was baie selfsugtig. Hy het nie omgegee dat God se tempel, God se mense en sy eie nageslag die prys sou moes betaal vir sy sonde nie. Hiskía het gesterf en sy sondige seun Manasse het koning geword. Ons vind Hiskía se naam is in Jesus se geslagsregister (aan Josef se kant) - Matthéüs 1:10.</p>
+  <p>Wanneer ek kyk na die lewe van Hiskía verstaan ek waarom die 7 kerke in Openbaring aangemoedig word om aan te hou en te oorwin. Hiskía het op God vertrou om die volgende oomblik weer sy eie planne te maak. Moenie dat vrees jou besluite beïnvloed nie. Ek weet soms voel dit of jy nooit wen nie, maar moenie ophou om God te vertrou nie. Probeer weer wanneer dinge nie uitwerk nie. God het steeds goeie planne vir jou. God is jou krag, jy sit saam met Jesus in die Hemel en Heilige Gees is altyd daar om jou te help.</p>
+  <p>&nbsp;</p>
+  <p>&nbsp;</p>
+ </body>
+</html>
