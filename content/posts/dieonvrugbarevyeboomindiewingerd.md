@@ -1,0 +1,21 @@
+---
+title: "Die onvrugbare vyeboom in die wingerd"
+date: 2024-07-15T07:35:00+02:00
+draft: false
+---
+<html>
+ <head></head>
+ <body>
+  <p>“EN Hy het hierdie gelykenis uitgespreek: 'n Man het 'n vyeboom gehad wat in sy wingerd geplant was, en hy het gekom en vrugte daaraan gesoek en niks gekry nie. Toe sê hy vir die tuinier: Kyk, drie jaar kom ek om vrugte aan hierdie vyeboom te soek en ek kry niks nie; kap hom uit. Waarvoor maak hy die grond nog onvrugbaar? Maar hy antwoord en sê vir hom: Meneer, laat hom nog hierdie jaar staan totdat ek om hom gespit en mis gegooi het. As hy dan vrugte dra, goed; maar so nie, dan kan u hom anderjaar uitkap.”<br>‭‭LUKAS‬ ‭13‬:‭6‬-‭9‬ ‭AFR53‬‬</p>
+  <p>Gewoonlik wanneer Jesus ‘n gelykenis vertel het sou die dissipels hom uitvra oor die betekenis. Ek neem aan die dissipels het verstaan wat die gelykenis beteken. Volgens Johannes 15 is Jesus die ware wynstok, die Vader is die landbouer en mense is die lote. Diegene wat naby aan Jesus leef sal baie vrug dra. Die vyeboom is simbolies van die Jode. Jesus het vir 3 jaar lank met die Jode gepraat en tog het die meeste van hulle nie vir Jesus aanvaar nie.</p>
+  <p>God is almagtig en Sy Woord het dikwels meer as een betekenis.&nbsp;<br>Ek glo dit verwys ook na die eindtyd. Ons kan na Israel kyk en dit sal vir ons ‘n aanduiding wees dat die einde nader kom. Die gelykenis verwys ook na die tribulasie. Vir die eerste drie en ‘n halwe jaar sal die Jode toelaat dat die Antichris regeer en dan sal hulle oë oopgaan. Hulle sal besef die Messias het reeds gekom en dat hulle bedrieg is.</p>
+  <p>“En leer van die vyeboom hierdie gelykenis: Wanneer sy tak al sag word en sy blare uitbot, weet julle dat die somer naby is. So weet julle ook, wanneer julle ál hierdie dinge sien, dat dit naby is, voor die deur.”<br>‭‭MATTHÉÜS‬ ‭24‬:‭32‬-‭33‬ ‭AFR53‬‬</p>
+  <p>“die teëstander wat hom verhef bo al wat God genoem word of voorwerp van aanbidding is, sodat hy in die tempel van God as God sal sit en voorgee dat hy God is.”<br>‭‭II THESSALONICENSE‬ ‭2‬:‭4‬ ‭AFR53‬‬</p>
+  <p>“En hulle het die draak aanbid wat die dier mag gegee het, en die dier aanbid en gesê: Wie is aan die dier gelyk? Wie kan teen hom oorlog voer? En 'n mond is aan hom gegee wat groot woorde en godslasteringe uitspreek, en aan hom is mag gegee om dit twee-en-veertig maande lank te doen. En hy het sy mond oopgemaak om te laster teen God, om sy Naam en sy tabernakel en die wat in die hemel woon, te laster.”<br>‭‭OPENBARING‬ ‭13‬:‭4‬-‭6‬ ‭AFR53‬‬</p>
+  <p>“En hy sal een week lank met baie 'n sterk verbond sluit, en gedurende die helfte van die week sal hy slagoffer en spysoffer laat ophou; en op die vleuel van gruwels sal daar 'n verwoester wees, en wel tot aan die einde; en wat vas besluit is, sal oor wat woes is, uitgestort word.”<br>‭‭DANIËL‬ ‭9‬:‭27‬ ‭AFR53‬‬</p>
+  <p>“En deur hom sal leërs op die been gebring word en die heiligdom, die vesting, ontheilig, en hulle sal die voortdurende offer afskaf en die ontsettende gruwel opstel. En die wat goddeloos handel teen die verbond, sal hy met vleiery afvallig maak, maar die volk wat hulle God ken, sal vashou en optree. En die verstandiges onder die volk sal baie tot insig bring; maar hulle sal struikel deur swaard en vlam, deur gevangenskap en berowing, dae lank. En terwyl hulle struikel, sal hulle met 'n klein hulp ondersteun word; dan sal baie uit listigheid by hulle aansluit. En van die verstandiges sal sommige struikel, om onder hulle loutering en reiniging en suiwering aan te bring tot die tyd van die einde — want dit sal nog duur tot op die vasgestelde tyd. En die koning sal doen net wat hy wil en homself verhef en hom groot hou bo enige god, en teen die God van die gode sal hy wonderbaarlike dinge spreek; en hy sal voorspoedig wees, totdat die grimmigheid ten einde is; want wat vas besluit is, sal uitgevoer word.”<br>‭‭DANIËL‬ ‭11‬:‭31‬-‭36‬ ‭AFR53‬‬</p>
+  <p>Jesus sal ook terugkeer op die derde dag en dan sal die lote wat nie vrug dra nie finaal verbrand word. Jesus wil mense uit elke ras en nasie red. Dit is tyd om seker te maak dat ons Jesus heelhartig volg en nie net godsdienstig is nie.</p>
+  <p>“Ek is die wynstok, julle die lote. Wie in My bly, en Ek in hom, hy dra veel vrug; want sonder My kan julle niks doen nie.”<br>‭‭JOHANNES‬ ‭15‬:‭5‬ ‭AFR53‬‬</p>
+  <p>&nbsp;</p>
+ </body>
+</html>
